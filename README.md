@@ -1,3 +1,5 @@
+#SOLLLL YA ACEPTA MI INVITACIÓN :(
+
 # 🧠 Ciencias Cognitivas - Repositorio
 
 > *Explorando los misterios de la mente, una línea de código a la vez*
