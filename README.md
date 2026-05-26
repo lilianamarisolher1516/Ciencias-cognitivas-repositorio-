@@ -1,4 +1,4 @@
-#SOLLLL YA ACEPTA MI INVITACIÓN :(
+# SOLLLL YA ACEPTA MI INVITACIÓN :(
 
 # 🧠 Ciencias Cognitivas - Repositorio
 
